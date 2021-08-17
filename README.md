@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rasvanjaya21
 - 👀 I’m interested in YNTKS
-- 🌱 I’m currently learning UMM Campus
+- 🌱 I’m currently learning in UMM Campus
 - 💞️ I’m looking to collaborate on earthlings
 - 📫 How to reach me : sleep, and let's rock in your nightmare 😈
 
