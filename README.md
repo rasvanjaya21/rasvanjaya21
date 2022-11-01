@@ -1,7 +1,7 @@
 [![@rasvanjaya21's Holopin board](https://holopin.me/rasvanjaya21)](https://holopin.io/@rasvanjaya21)
 
 - 👋 Hi, I’m @rasvanjaya21
-- 👀 I’m interested in YNTKTS
+- 👀 I’m interested in ~~YNTKTS~~ YNTKTK
 - 🌱 I’m currently learning in UMM Campus
 - 💞️ I’m looking to collaborate on earthlings
 - 📫 How to reach me : sleep, and let's rock in your nightmare 😈
