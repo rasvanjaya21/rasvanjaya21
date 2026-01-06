@@ -1,4 +1,4 @@
-[![@rasvanjaya21's Holopin board](https://holopin.me/rasvanjaya21)](https://holopin.io/@rasvanjaya21)
+[![@rasvanjaya21's Holopin board](https://images.weserv.nl/?url=boards.holopin.io/rasvanjaya21)](https://holopin.io/@rasvanjaya21)
 
 - 👋 Hi, I’m @rasvanjaya21
 - 👀 I’m interested in ~~YNTKTS~~ YNTKTK
