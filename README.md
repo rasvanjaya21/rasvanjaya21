@@ -1,10 +1,4 @@
-[![@rasvanjaya21's Holopin board](https://images.weserv.nl/?url=boards.holopin.io/rasvanjaya21)](https://holopin.io/@rasvanjaya21)
-
-- 👋 Hi, I’m @rasvanjaya21
-- 👀 I’m interested in ~~YNTKTS~~ YNTKTK
-- 🌱 I’m currently learning in UMM Campus
-- 💞️ I’m looking to collaborate on earthlings
-- 📫 How to reach me : sleep, and let's rock in your nightmare 😈
+[![@rasvanjaya21's Holopin board](https://images.weserv.nl/?url=boards.holopin.io/rasvanjaya21?1767711566436)](https://holopin.io/@rasvanjaya21)
 
 <!---
 rasvanjaya21/rasvanjaya21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
